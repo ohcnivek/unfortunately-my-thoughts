@@ -29,6 +29,6 @@ So I guess you might be wondering: **what is the correct way to approach those s
 
 I've found that trying to convince myself or reminding myself about why the problem matters helps a lot. At the end of the day, if you're really taking the capacity to think about this stuff, you clearly care about the stuff that's on your mind. Why do you care? Take that and run with it! At least that's what I've done.
 
-Sometimes, the best we can do to find what we are looking for is to step away. This is applies to a lot of different aspects of our lives (Relationships, jobs, friendships etc.), at least my life. Somehow, stepping back offers an undeniable clarity that allows us to step out of the box we unreasonably force ourselves into.
+Sometimes, the best we can do to find what we are looking for is to step away. This is applies to a lot of different aspects of our lives (Relationships, jobs, friendships etc.), at least in my life. Somehow, stepping back offers an undeniable clarity that allows me to step out of the box that I unreasonably force myself into. I wonder why I do that.
 
-Here's to looking at the bigger picture, to hopefully find the sesame oil of our lives!
+Here's to looking at the bigger picture, and to hopefully finding the sesame oil of our lives!

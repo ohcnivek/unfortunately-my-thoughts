@@ -3,7 +3,7 @@ module.exports = {
     title: `unfortunately, my thoughts`,
     author: {
       name: `Kevin Cho`,
-      summary: `, who lives in atlanta, doing allegedly important things on the internet.`,
+      summary: `, who lives in atlanta and is doing allegedly important things on the internet. `,
     },
     description: `A starter blog demonstrating what Gatsby can do.`,
     siteUrl: `https://gatsbystarterblogsource.gatsbyjs.io/`,
