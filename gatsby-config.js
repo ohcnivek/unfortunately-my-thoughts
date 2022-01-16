@@ -1,9 +1,9 @@
 module.exports = {
   siteMetadata: {
-    title: `unfortunately, my thoughts`,
+    title: `unfortunately, my own thoughts`,
     author: {
       name: `Kevin Cho`,
-      summary: `, who lives in atlanta and is doing allegedly important things on the internet. `,
+      summary: `, who lives in atlanta and does allegedly important things on the internet. `,
     },
     description: `A starter blog demonstrating what Gatsby can do.`,
     siteUrl: `https://gatsbystarterblogsource.gatsbyjs.io/`,
