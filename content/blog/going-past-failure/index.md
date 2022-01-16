@@ -6,7 +6,7 @@ description: What I realized from not being able to find the sesame oil in my ki
 
 During winter break, I was making myself a well-deserved post climb meal at 11 PM. This 'dish' is super simple, only requiring 3 eggs, rice, sesame oil & soy sauce. I'd eat it all the time growing up, as my dad was an insufferable cook who refused to not cook for his kids.
 
-As I was cooking my 3 eggs, I started to look for the sesame oil (which in my opinion is the most imporant component of the dish as its my favorite part). I checked our sauce container, the kitchen counter, pretty much everywhere you could imagine, but I couldnt find it anywhere. In the midst of the eggs being almost done & my incompetency at multitasking, I gave up on finding the sesame oil and sat down at my kitchen table. 
+As I was cooking my 3 eggs, I started to look for the sesame oil (which in my opinion is the most imporant component of the dish as its my favorite part). I checked our sauce container, the kitchen counter, pretty much everywhere you could imagine, but I couldnt find it anywhere. Becuase the eggs were almost done & my incompetency at multitasking, I gave up on finding the sesame oil and sat down at my kitchen table. 
 
 And of course, literally sitting right in front of me was the sesame oil.
 
@@ -33,8 +33,8 @@ So I guess you might be wondering: **what are other ways to approach those situa
 
 Trying to convince myself or reminding myself about why the problem matters to me helps a lot in 'giving up' aka looking at the problem from a different perspective. Now, for some situations like the sesame oil it might feel a little silly to try and make yourself feel convicted about that. But then at the end of the day, if you're really taking the time & effort to think about this stuff, you clearly care enough.
 
-So yea, why do you care about ***x***? Then take that conviction and run with it. At least that's what I've done.
+So yea, why do you really care about ***x***? Take your answer & run with it. At least that's what I've done. 
 
-This feels a little long now. But yea. I guess sometimes the best we can do to find what we are looking for is to step away (whatever that means). Somehow, stepping back offers us an undeniable clarity that allows us to step out of the box that we unreasonably force ourselves into. I wonder why we do that.
+Te best we can do to find what we are looking for sometimes is to step away (whatever that means to you / in the situation). Somehow, stepping back offers an undeniable clarity that allows us to step out of the box that we unreasonably force ourselves into. I wonder why we do that.
 
 Here's to looking at the bigger picture, and to hopefully finding the sesame oil of our lives!
