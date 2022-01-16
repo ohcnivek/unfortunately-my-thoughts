@@ -35,6 +35,6 @@ Trying to convince myself or reminding myself about why the problem matters to m
 
 So yea, why do you really care about ***x***? Take your answer & run with it. At least that's what I've done. 
 
-Te best we can do to find what we are looking for sometimes is to step away (whatever that means to you / in the situation). Somehow, stepping back offers an undeniable clarity that allows us to step out of the box that we unreasonably force ourselves into. I wonder why we do that.
+The best we can do to find what we are looking for sometimes is to just step away (whatever that means to you / in the situation). Somehow, stepping back offers an undeniable clarity that allows us to step out of the box that we unreasonably force ourselves into. I wonder why we do that.
 
 Here's to looking at the bigger picture, and to hopefully finding the sesame oil of our lives!
