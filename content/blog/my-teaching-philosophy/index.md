@@ -58,7 +58,7 @@ I'm a strong believer that anyone can learn anything, and my approach to pedagog
 
 So yeah. If you have the opportunity to teach in a formal or informal setting in your community, do it! Plus, I would not have gotten my first job without it on my resume, and I wouldnt have my current job without my first job.
 
-#### in case you were wondering about my credentials: 
+#### in case you were wondering about my somewhat valid credentials: 
 - helped teach object oriented programming (cs1331) at the georgia tech college of computing (may 2020 - dec 2020)
 - helped teach data structures & algorithms (cs1332) at the georgia tech college of computing (jan 2021 - now {jan 2022})
     - "We love Kevin! :)" - fall 2021 anonymous student feedback
