@@ -33,7 +33,7 @@ So I guess you might be wondering: **what are other ways to approach those situa
 
 Trying to convince myself or reminding myself about why the problem matters to me helps a lot in 'giving up' aka looking at the problem from a different perspective. Now, for some situations like the sesame oil it might feel a little silly to try and make yourself feel convicted about that. But then at the end of the day, if you're really taking the time & effort to think about this stuff, you clearly care enough.
 
-So yea, why do you really care about ***x***? Take your answer & run with it. At least that's what I've done. 
+So yea, why do you really care about ***_____***? Take your answer & run with it. At least that's what I've done. 
 
 The best we can do to find what we are looking for sometimes is to just step away (whatever that means to you / in the situation). Somehow, stepping back offers an undeniable clarity that allows us to step out of the box that we unreasonably force ourselves into. I wonder why we do that.
 
