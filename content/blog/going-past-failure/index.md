@@ -17,17 +17,17 @@ I'm describing this series of events:
 
 > trying -> trying harder -> giving up (failure) -> finding success/ finding the solution (often times, a suprisingly simple one at that)
 
-The world around us constantly tells us never to give up. Dont get me wrong, I mostly agree with this! Chase after the things that you're called to follow and do your thing. But sometimes, we can get caught up in this misconception that the harder we try to be sucessful, the more sucessful we'll be. Then when we don't find success after trying harder, we look inside to figure what we're doing wrong. Then, we say "ah, im not trying hard enough!" and go right back to square 1. 
+The world around us constantly tells us never to give up. Dont get me wrong, I mostly agree with this. Chase after the things that you're called to follow and do your thing. But sometimes, we can get caught up in this misconception that the harder we try to be sucessful, the more sucessful we'll be. Then when we don't find success after trying harder, we look inside to figure what we're doing wrong. Then, we say "ah, im not trying hard enough!" and go right back to square 1. 
 
 Clearly, that approach is flawed enough that even a bottle of sesame oil proved me wrong.
 
 Now, am I then saying we should give up after a certain point? No. 
 
-I just think after awhile, we should switch up the way we look at things. So I guess going back to the sesame oil situation, "giving up" on finding it wasnt *actually* giving up. It was more of a "i cant find this now and dont have the time to because otherwise the eggs will burn, so im going to find it after im done cooking the eggs even if that means the food might go cold". Hopefully that makes sense. 
+I just think after awhile, we should switch up the way we look at things. So I guess going back to the sesame oil situation, "giving up" on finding it wasnt *actually* giving up. It was more of a "i cant find this now and dont have the time to because otherwise the eggs will burn, so im going to find it after im done cooking the eggs even if that means the food might go cold". Hopefully that makes sense. It's really weird, but when you 'give up' it almost feels like there's nothing to lose anymore, which in turn gives us a fresh perspective of whats at hand.
 
 All I'm trying to say is that just "trying harder" in all honesty can ironically be kind of a lazy / brute-force way to approach the problems in our lives. For me, it often puts me in a mental box that severely limits my line of sight. And maybe it has the same effect for you. 
 
-This is kind of a weird example, but I really see this weird phenomenon of the mental box/giving up take place during my technical coding interviews. When I try to force myself to try to think harder about possible solutions, I end up just stumbling over my words and repeating the same thing over and over again with no clear thoughts running through my head. 
+This is a weird example, but I really see this weird phenomenon of the mental box/giving up take place during my technical coding interviews. When I try to force myself to try to think harder about possible solutions, I end up just stumbling over my words and repeating the same thing over and over again with no clear thoughts running through my head. 
 
 So I guess you might be wondering: **what are other ways to approach those situations?**
 
