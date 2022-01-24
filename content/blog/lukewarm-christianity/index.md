@@ -51,10 +51,3 @@ To be honest, I think it really goes back to treating our faith as the differenc
 
 Yea, I think it's really hard too and literally everyone else does too. And that's ok — in the end, we undeservingly are loved by a perfect, merficul God who forgives. Just trying our best is somehow enough. And that's the good news!
 
-
-
-<!-- Questions that I think a lot of Christ Followers Cant answer (including myself)
-- Why would a good God allow pain 
-- Predestination vs Will (specifically with those who aren’t faithful)
-- Do pets go to heaven 
-- Do denominations matter? Which one is right?
