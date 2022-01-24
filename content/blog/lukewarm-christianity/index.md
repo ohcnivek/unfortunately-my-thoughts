@@ -16,7 +16,7 @@ I'm making the assumption here that we feel convicted that lukewarm faith is wro
 
 To answer this, I think we need to answer this first: ***"What purpose would 'moderately' following Christianity serve?"***
 
-It's the idea of doing the minimum while maximizing the benefit. It's the whole "buy low sell high" thing. Except "buying low" is settling for lukewarm faith, and "selling high" is the getting into heaven + having unlimited call a friends (God) in dire emergencies. 
+It's the idea of doing the minimum while maximizing the benefit. It's the whole "buy low sell high" thing. Except "buying low" is settling for lukewarm faith, and "selling high" is the getting into heaven + having unlimited phone a friends (God) in dire emergencies. 
 
 At least that's how it works in my head. We justify that it's ok because we luckily serve a good & merciful father, who looks past our transgressions. I really don't think I'm the only one that feels guilty after thinking like this. It almost feels like I'm taking advantage of God.
 
