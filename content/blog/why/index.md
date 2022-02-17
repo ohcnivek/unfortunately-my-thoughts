@@ -12,7 +12,6 @@ Hopefully, me sharing & writing down some of my thoughts and realizations will h
 
 Do keep in mind, I'm 22 - chances are that you are probably a lot wiser & smarter than me. So please do share your thoughts & stories with me if you want! I'd love to hear them.
 
-> messenger: ohcnivek
-> email: ohcnivek@gmail.com
+> messenger: ***ohcnivek***, email: ***ohcnivek@gmail.com***
 
 
