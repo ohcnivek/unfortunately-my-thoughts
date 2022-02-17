@@ -21,7 +21,7 @@ For the most part I agree with Kevin circa 2019, but I also think I left out som
 
 When plan B is not being able to put food on the table or not being able to afford daycare, choosing risk doesnt feel right in any shape or form. To able to have had the option to take a risk & afford to fail is a great blessing, whether it works out or not. 
 
-2. ***Uncertainty and Happiness is not a math equation***
+2. ***Uncertainty and Happiness cannot be solved with an equation***
 
 I feel like for a lot of people including myself, this is the statement that needs to evaluate to true in order to take risk: 
 
