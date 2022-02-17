@@ -19,7 +19,7 @@ For the most part I agree with Kevin circa 2019, but I also think I left out som
 
 1. ***Being able to be afford the uncertainty associated with risk is a privilege***
 
-When plan B is not being able to put food on the table or not being able to afford daycare, choosing risk doesnt feel right in any shape or form. To able to have had the option to take a risk & afford to fail is a great blessing, whether it works out or not. 
+When plan B is not being able to put food on the table or not being able to afford daycare, choosing risk doesnt feel right in any shape or form. To have the option to take a risk & afford to fail is a great blessing, whether it works out or not. 
 
 2. ***Uncertainty and Happiness cannot be solved with an equation***
 
@@ -27,7 +27,7 @@ I feel like for a lot of people including myself, this is the statement that nee
 
 > Happiness from certainty < The ***potential*** amount of happinesss I might gain in the future if I choose uncertainty (aka a chance to be happier) + The ***potential*** amount of unhappinesss I might gain in the future if I choose uncertainty (aka a chance to be happier) and fail
 
-And I'd get frustrated at myself when I wouldnt take a chance even when this was the case — but luckily, our decision making skills are much more complex than that. It's ok, and we can and should put emotion into the decision making process & be kinder to ourselves.
+And I'd get frustrated at myself when I wouldnt take a chance even when this was the case — but luckily, our decision making skills are much more complex than that. It's ok, and we can and should put emotion into the decision making process & be easier on ourselves.
 
 3. ***Uncertainty is sometimes really romanticized & overhyped***
 
