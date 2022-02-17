@@ -1,5 +1,5 @@
 ---
-title: Happiness and Certainty
+title: Happiness and Uncertainty
 date: "2022-02-03T22:13:03.284Z"
 description: Green grass and slightly less green grass
 ---
