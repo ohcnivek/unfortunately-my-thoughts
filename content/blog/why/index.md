@@ -1,23 +1,18 @@
 ---
-title: Why?
+title: Why + Who are you?
 date: "2022-01-15T22:12:03.284Z"
 description: "Why the he** does this blog exist?"
 ---
 
-To be honest, I don't know. Maybe I like to talk too much, or maybe I like to vent too much. Either way, I'd like to clarify a couple of things before you jump into reading any of my random thoughts.
+Hey. My name's Kevin. I'm from Daejeon, S. Korea & have been in Atlanta for quite some time now. I like art history, climbing, creating, coding, teaching... a lot more.
 
-1. Is the purpose of this blog to share my wisdom? **no.**
-2. Is it to tell you what to do? **no.**
-3. Am i smart or qualified enough to do either of those things? **absolutely not**
+I created this blog because ... I've made a lot of mistakes, and I will continue to make them until my last day on earth. So why not share the lessons and realizations ive taken away from them? Shame is a powerful thing. It often times pushes us from being vulnerable and sharing our mistakes and lessons with others — the very thing that helps us build relationships. So this is my attempt at driving out & offsetting shame's effect on my life with vulnerability.
 
-I just like sharing what I'm thinking about, and I don't like putting people in the uncomfortable position where they're forced to listen to me. This way, it'll be completely optional! I think about a lot of random stuff, and this is just a really convienient/cool way for me to vent and connect with those who feel the same way. So yea! I guess I can introduce myself a little bit.
+Hopefully, me sharing & writing down some of my thoughts and realizations will help someone else out. 
 
-My name is Kevin. I'm 21 (almost 22 oh my), and right now, I'm a student at Georgia Tech (as of jan 2022). This summer, I'll be at Meta as a Software Engineer Intern in San Francisco, California. Previously, I was at Delta Air Lines as a Software Engineer Intern on the In-Flight Entertainment team + traveling the world!
+Do keep in mind, I'm 22 - chances are that you are probably a lot wiser & smarter than me. So please do share your thoughts & stories with me if you want! I'd love to hear them.
 
-I'm very passionate about learning new things, and sharing those things with the people in my life. Feel free to reach out to me about anything, always!
-
+> messenger: ohcnivek
 > email: ohcnivek@gmail.com
-
-
 
 
