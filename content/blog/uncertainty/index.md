@@ -27,15 +27,15 @@ I feel like for a lot of people including myself, this is the statement that nee
 
 > Happiness from certainty < The ***potential*** amount of happinesss I might gain in the future if I choose uncertainty (aka a chance to be happier) + The ***potential*** amount of unhappinesss I might gain in the future if I choose uncertainty (aka a chance to be happier) and fail
 
-And I'd get frustrated at myself when I wouldnt take a chance even when this was the case — but luckily, our decision making skills are much more complex than that. It's ok to put some emotion into the thought process.
+And I'd get frustrated at myself when I wouldnt take a chance even when this was the case — but luckily, our decision making skills are much more complex than that. It's ok, and we can and should put emotion into the decision making process & be kinder to ourselves.
 
 3. ***Uncertainty is sometimes really romanticized & overhyped***
 
 Sometimes, what we need is certainty & the comfort that comes from it — and I personally think that's completely valid. 
 
-Nowadays uncertainty & risk is almost always associated with a huge monetary payout etc. It's always "how can i make/ have more ______ than i do now?" Nothing wrong this, but I've found it's really hard to be content with the present & even harder to be grateful for it with this line of thinking. 
+When contemplating / taking risk, it turns into constantly asking ourselves "how can i make/ have more ______ than i do now?" Nothing wrong with this, but I've found it's really hard to be content with the present & even harder to be grateful for it with this line of thinking. 
 
 
 ### final thoughts
 
-The grass will always be greener on the otherside — it's ok for us to sit down in our yard and enjoy & be grateful for our seemingly slightly less green grass. Maybe, just maybe, we'll find that the things that we've been looking for were always right here, in our own yard. 
+The grass will always be greener on the otherside — it's ok for us to enjoy & be grateful for our seemingly slightly less green grass & not always be obsessed about comapring our grass to theirs. Maybe, just maybe, we'll find that the things that we've been looking for were always right here, in our own slightly less green grass.
